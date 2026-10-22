@@ -215,4 +215,4 @@ The Legend of Vraz is available as a full free version with all features and upd
 Ready to embark on your adventure? Download The Legend of Vraz now and save the princess!
 
 ---
-**Last updated:** 2026-10-22 07:02:13 UTC
+**Last updated:** 2026-10-22 13:24:46 UTC
